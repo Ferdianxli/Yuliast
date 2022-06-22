@@ -1,2 +1,0 @@
-# Yuliast
-Newbie
